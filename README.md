@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hiba-osman
 - 👀 I’m interested in psychology, Spanish language and many other things.
 - 🌱 I’m currently learning to be a good learner.
-- 📫 How to reach me : via email.
+- 📫 How to reach me : via email or Dm
 
 <!---
 Hiba-osman/Hiba-osman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
